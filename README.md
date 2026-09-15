@@ -2,8 +2,7 @@
 𝐼'𝑚 𝑢𝑠𝑢𝑎𝑙𝑙𝑦 𝑜𝑛 𝑝𝑜𝑛𝑦 𝑡𝑜𝑤𝑛 *𝐴𝐿𝐿* 𝑡ℎ𝑒 𝑡𝑖𝑚𝑒 . 𝐼𝑓 𝐼'𝑚 𝑛𝑜𝑡, 𝑎𝑠𝑠𝑢𝑚𝑒 𝐼 𝑔𝑜𝑡 𝑔𝑟𝑜𝑢𝑛𝑑𝑒𝑑 𝑜𝑟𝑟 𝐼'𝑚 𝑗𝑢𝑠𝑡 𝑛𝑜𝑡 𝑎𝑏𝑙𝑒 𝑡𝑜 𝑝𝑙𝑎𝑦.                   
              ⌜ 𝐻𝑎𝑝𝑝𝑖𝑙𝑦 𝑇𝑎𝑘𝑒𝑛 𝑏𝑦 𝑚𝑦 𝑜𝑛𝑒 𝑎𝑛𝑑 𝑜𝑛𝑙𝑦 💝 , # ⌟   
      𝐼𝑓 𝑦𝑜𝑢'𝑟𝑒 ℎ𝑒𝑟𝑒 𝑐𝑎𝑢𝑠𝑒 𝐼 𝑤𝑎𝑠 𝑟𝑎𝑔𝑒𝑏𝑎𝑖𝑡𝑖𝑛𝑔 𝑦𝑎' 𝑠𝑜𝑟𝑟𝑦 𝑓𝑜𝑟 𝑡ℎ𝑒 𝑡𝑟𝑜𝑢𝑏𝑙𝑒 👀 .. 
-
-  <img width="637" height="358" alt="4rzv7wjv2chg1" src="https://github.com/user-attachments/assets/ba64bd37-365a-469f-8ed8-e413fa5bd9d1" />
+<img width="637" height="358" alt="4rzv7wjv2chg1" src="https://github.com/user-attachments/assets/ba64bd37-365a-469f-8ed8-e413fa5bd9d1" />
 
 <!--
 **VirenZal/VirenZal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
