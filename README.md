@@ -2,7 +2,16 @@
 𝐼'𝑚 𝑢𝑠𝑢𝑎𝑙𝑙𝑦 𝑜𝑛 𝑝𝑜𝑛𝑦 𝑡𝑜𝑤𝑛 *𝐴𝐿𝐿* 𝑡ℎ𝑒 𝑡𝑖𝑚𝑒 . 𝐼𝑓 𝐼'𝑚 𝑛𝑜𝑡, 𝑎𝑠𝑠𝑢𝑚𝑒 𝐼 𝑔𝑜𝑡 𝑔𝑟𝑜𝑢𝑛𝑑𝑒𝑑 𝑜𝑟𝑟 𝐼'𝑚 𝑗𝑢𝑠𝑡 𝑛𝑜𝑡 𝑎𝑏𝑙𝑒 𝑡𝑜 𝑝𝑙𝑎𝑦.                   
              ⌜ 𝐻𝑎𝑝𝑝𝑖𝑙𝑦 𝑇𝑎𝑘𝑒𝑛 𝑏𝑦 𝑚𝑦 𝑜𝑛𝑒 𝑎𝑛𝑑 𝑜𝑛𝑙𝑦 💝 , # ⌟   
      𝐼𝑓 𝑦𝑜𝑢'𝑟𝑒 ℎ𝑒𝑟𝑒 𝑐𝑎𝑢𝑠𝑒 𝐼 𝑤𝑎𝑠 𝑟𝑎𝑔𝑒𝑏𝑎𝑖𝑡𝑖𝑛𝑔 𝑦𝑎' 𝑠𝑜𝑟𝑟𝑦 𝑓𝑜𝑟 𝑡ℎ𝑒 𝑡𝑟𝑜𝑢𝑏𝑙𝑒 👀 .. 
-<img width="600" height="338" alt="recreated-animated-wallpaper-1920x1080-from-deltarune-menu-v0-hx2er6ahcrv11" src="https://github.com/user-attachments/assets/57e85d4c-86a4-4566-a58b-b29192ca2f93" />
+
+<img width="2048" height="154" alt="tumblr_c25f3b08399e566f9d72cdf985466e5b_8846d887_2048" src="https://github.com/user-attachments/assets/ba38e37a-aa69-4d79-a69d-9ba6c623ea90" />
+
+<hello>
+  <summary>Click here to expand!</summary>
+  
+  This content is hidden inside the dropdown until it is clicked. You can write paragraphs, lists, or text here.
+</details>
+
+
 
 
 <!--
