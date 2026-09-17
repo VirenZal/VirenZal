@@ -5,11 +5,7 @@
 
 <img width="2048" height="154" alt="tumblr_c25f3b08399e566f9d72cdf985466e5b_8846d887_2048" src="https://github.com/user-attachments/assets/ba38e37a-aa69-4d79-a69d-9ba6c623ea90" />
 
-<hello>
-  <summary>Click here to expand!</summary>
-  
-  This content is hidden inside the dropdown until it is clicked. You can write paragraphs, lists, or text here.
-</details>
+
 
 
 
