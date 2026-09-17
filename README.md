@@ -5,10 +5,10 @@
 
 <img width="2048" height="154" alt="tumblr_c25f3b08399e566f9d72cdf985466e5b_8846d887_2048" src="https://github.com/user-attachments/assets/ba38e37a-aa69-4d79-a69d-9ba6c623ea90" />
 
-# I allow C+H+K , anything. But I wont put it in my name , 
+ I allow C+H+K , anything. But I wont put it in my name , 
 
 ## ⮞ Stuff I'm into ⚊
-# STH , Deltarune , Backrooms , Undertale , Pony Town , 
+STH , Deltarune , Backrooms , Undertale , Pony Town , 
 
 
 
