@@ -3,6 +3,8 @@
 
 <img width="474" height="100" alt="logo-large-57d9b1947a" src="https://github.com/user-attachments/assets/f35e24dc-92c8-41a4-80c0-8eee7a7d9f90" />
 
+[](https://komarev.com/ghpvc/?VirenZal)
+
 
 
 
@@ -16,8 +18,6 @@
 https://a-dark-place-.straw.page
  
  __I allow C+H+K__ , anything. But I wont put it in my name ,      
-
-<img width="1200" height="129" alt="tumblr_c25f3b08399e566f9d72cdf985466e5b_8846d887_2048" src="https://github.com/user-attachments/assets/ba38e37a-aa69-4d79-a69d-9ba6c623ea90" />
 
 ## ⮞ MORE info ⚊ <img width="20" height="20" alt="Undertale" src="https://github.com/user-attachments/assets/9261d3e5-4280-4ed8-9287-15add73526be" />
 
