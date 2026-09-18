@@ -1,9 +1,7 @@
-https://a-dark-place-.straw.page
-
-
+https://a-dark-place-.straw.page **A passage opens up.*
 <img width="88" height="31" alt="3bd2e4c3" src="https://github.com/user-attachments/assets/36dd9f36-3886-4cf0-ba34-60d8f1d794e5" />
 <img width="88" height="31" alt="943f0688" src="https://github.com/user-attachments/assets/43fb5647-65f1-4f83-9ed9-8eee31ac91b3" />
-
+<img width="500" height="500" alt="Your_paragraph_text-removebg-preview" src="https://github.com/user-attachments/assets/85f536a7-24a1-4cc2-b56c-aa6811ab4534" />
 
 
 
