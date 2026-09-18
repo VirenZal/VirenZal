@@ -1,5 +1,4 @@
 <img width="1000" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
-<img width="1000" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
 
 https://a-dark-place-.straw.page *A passage opens up.*
 <img width="88" height="31" alt="3bd2e4c3" src="https://github.com/user-attachments/assets/36dd9f36-3886-4cf0-ba34-60d8f1d794e5" />
@@ -9,7 +8,7 @@ https://a-dark-place-.straw.page *A passage opens up.*
 In school currently , So my time online is shaved down a bit .
 
 <img width="1000" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
-<img width="1000" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
+<img width="500" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
 
 
 
