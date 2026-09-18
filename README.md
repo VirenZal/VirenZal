@@ -3,7 +3,8 @@
 
 <img width="474" height="100" alt="logo-large-57d9b1947a" src="https://github.com/user-attachments/assets/f35e24dc-92c8-41a4-80c0-8eee7a7d9f90" />
 
-[](https://komarev.com/ghpvc/?VirenZal)
+[Profile view counter on GitHub](https://komarev.com/ghpvc/?username=VirenZal)
+
 
 
 
