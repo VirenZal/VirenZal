@@ -6,7 +6,7 @@
 
                            In school currently , So my time online is shaved down a bit .
                                # 1 Sonaze Enjoyer trust me ' Open for interactions
-                     ![](https://komarev.com/ghpvc/?username=VirenZal)
+                     ![](https://komarev.com/ghpvc/?username=virenzal)
 
 
 <img width="1000" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
