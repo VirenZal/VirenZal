@@ -14,6 +14,7 @@
 <img width="88" height="31" alt="943f0688" src="https://github.com/user-attachments/assets/43fb5647-65f1-4f83-9ed9-8eee31ac91b3" />
 
  https://a-dark-place-.straw.page *A passage opens up.* <img width="20" height="20" alt="j5kpvtqf0j5c1" src="https://github.com/user-attachments/assets/076dab96-ee72-4679-9b95-8c490ff567e9" />
+ Why are the pictures not fully transparent :(
 
 
 <div align="center"><img width="600" height="500" alt="Your_paragraph_text-removebg-preview" src="https://github.com/user-attachments/assets/85f536a7-24a1-4cc2-b56c-aa6811ab4534" /> 
