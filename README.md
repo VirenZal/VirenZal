@@ -4,8 +4,10 @@
 
 <img width="600" height="500" alt="Your_paragraph_text-removebg-preview" src="https://github.com/user-attachments/assets/85f536a7-24a1-4cc2-b56c-aa6811ab4534" /> 
 
-                           In school currently , So my time online is shaved down a bit .
-                               # 1 Sonaze Enjoyer trust me ' Open for interactions
+                                In school currently , So my time online is shaved down a bit .
+                                    # 1 Sonaze Enjoyer trust me ' Open for interactions
+                                ★   Not Strict about Prns     ⯌    I randomly C+H sometimes   ☆
+
                                                 
 
 <img width="1000" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
