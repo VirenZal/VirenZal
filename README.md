@@ -13,7 +13,7 @@
 <div align="center"><img width="99" height="41" alt="3bd2e4c3" src="https://github.com/user-attachments/assets/36dd9f36-3886-4cf0-ba34-60d8f1d794e5" />
 <img width="99" height="41" alt="943f0688" src="https://github.com/user-attachments/assets/43fb5647-65f1-4f83-9ed9-8eee31ac91b3" />
 
-*A [[[Mysterious Passage]]](https://a-dark-place-.straw.page) opens up.* <img width="20" height="20" alt="j5kpvtqf0j5c1" src="https://github.com/user-attachments/assets/076dab96-ee72-4679-9b95-8c490ff567e9" />
+[[[Mysterious Passage]]]()  <img width="20" height="20" alt="j5kpvtqf0j5c1" src="https://github.com/user-attachments/assets/076dab96-ee72-4679-9b95-8c490ff567e9" />
  
 
 
