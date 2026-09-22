@@ -1,12 +1,3 @@
-![](https://komarev.com/ghpvc/?username=virenzal)   
-
-
-
-
-
-
-
-
 <div align="center"><img width="665" height="480" alt="179010035823748280" src="https://github.com/user-attachments/assets/b34f9457-63d2-46e0-b1d9-379913bd0f6f" />
 
 
