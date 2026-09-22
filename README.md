@@ -1,13 +1,13 @@
-<img width="1075" height="200" alt="tumblr_f5b9a74eb0583c464062bad57a69c239_33d07aaa_1280" src="https://github.com/user-attachments/assets/adc03217-710b-4d8d-bbba-e50650ff007e" />
-
 ![](https://komarev.com/ghpvc/?username=virenzal)   
 
-<div align="center"><img width="320" height="180" alt="tumblr_4c21a7104bb9de922f75ad84d610ee2b_6c918f17_320" src="https://github.com/user-attachments/assets/7bfc1400-ec6b-48a7-85b0-dc23b3a7ad0c" /> <div align="center"><img width="320" height="180" alt="yufsp8p6itqe1" src="https://github.com/user-attachments/assets/ba6df6fa-d537-40ec-97eb-92b02cf184ac" /><div align="center"> <img width="320" height="180" alt="images" src="https://github.com/user-attachments/assets/d331c9e4-8532-4550-9e74-6881ec8e82f6" /> 
 
 
 
 
 
+
+
+<div align="center"><img width="665" height="480" alt="179010035823748280" src="https://github.com/user-attachments/assets/b34f9457-63d2-46e0-b1d9-379913bd0f6f" />
 
 
 <div align="center">
@@ -23,14 +23,11 @@
  
 
 
-<div align="center"><img width="600" height="500" alt="Your_paragraph_text-removebg-preview" src="https://github.com/user-attachments/assets/85f536a7-24a1-4cc2-b56c-aa6811ab4534" /> 
- <div align="center"> -
- <div align="center"> Hey! Hi! Hello! More hellos!
 
 
  <div align="center">
 In school currently , So my time online is shaved down a bit .
-| #1 Sonaze Enjoyer trust me ' Open for interactions | Not Strict about Prns   ⯌  I randomly C+H sometimes                  
+| #1 Sonaze Enjoyer ' Read StrawPage to Int | Not Strict about Prns ⯌ I randomly C+H sometimes                  
 
                                                 
 <div align="center"> -
