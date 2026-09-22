@@ -19,23 +19,20 @@
 
 
 
-[[[Straw Page]]](https://about-virenz.straw.page)  <img width="20" height="20" alt="j5kpvtqf0j5c1" src="https://github.com/user-attachments/assets/076dab96-ee72-4679-9b95-8c490ff567e9" />
+<div align="center"><img width="100" height="60" alt="178997971799517552 (2)" src="https://github.com/user-attachments/assets/6597d290-e0c5-4c76-a713-15dc003dffa0" />
+
+[[[Straw Page]]](https://about-virenz.straw.page) 
+
  
 
 
 
 
  <div align="center">
-In school currently , So my time online is shaved down a bit .
-| #1 Sonaze Enjoyer ' Read StrawPage to Int | Not Strict about Prns ⯌ I randomly C+H sometimes                  
+In school currently , So my time online is shaved down a bit .| #1 Sonaze Enjoyer ' Read StrawPage to Int | 
+   <div align="center">Not Strict about Prns ⯌ I randomly C+H sometimes                  
 
-                                                
-<div align="center"> -
-<img width="1000" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
-<img width="500" height="15" alt="07bfbc3b" src="https://github.com/user-attachments/assets/2d9cd5aa-f152-4708-badd-687c731837d2" />
-
-
-
+                                               
 
 
 
