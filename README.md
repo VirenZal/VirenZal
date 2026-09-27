@@ -12,7 +12,7 @@
 
 <div align="center"><img width="100" height="60" alt="178997971799517552 (2)" src="https://github.com/user-attachments/assets/6597d290-e0c5-4c76-a713-15dc003dffa0" />
 
-[[[Straw Page]]](https://about-virenz.straw.page) 
+[[[Straw Page]]](https://virenztrawpage.straw.page) 
 
  
 
