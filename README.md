@@ -20,8 +20,8 @@
 
 
  <div align="center">
-In school currently , So my time online is shaved down a bit .| #1 Sonaze Enjoyer ' Read StrawPage to Int | 
-   <div align="center">Not Strict about Prns ⯌ I randomly C+H sometimes     
+| In school currently , So my time online is shaved down a bit .|  
+
   
 
                                                
