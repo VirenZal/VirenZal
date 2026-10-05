@@ -1,16 +1,6 @@
 <div align="center"> <img width="1176" height="675" alt="179086846799667939 (1)" src="https://github.com/user-attachments/assets/b4815f11-7a1d-49ba-b9ac-484175fd0890" />
 
 
-
-<div align="center">
-
-
-
-
-
-
-
-
 <div align="center"><img width="100" height="60" alt="178997971799517552 (2)" src="https://github.com/user-attachments/assets/6597d290-e0c5-4c76-a713-15dc003dffa0" />
 
 [[[Straw Page]]](https://virenztrawpage.straw.page) . [Guns.Lol](https://guns.lol/virenzy)
