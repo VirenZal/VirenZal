@@ -3,7 +3,7 @@
 
 
 <div align="center">
-<img width="99" height="41" alt="lovespringtrap" src="https://github.com/user-attachments/assets/a2b1be30-efde-4934-8b1e-72ab06c6a234" /> <img width="99" height="41" alt="umbsylv" src="https://github.com/user-attachments/assets/851208a5-12ec-4b1d-a018-fa4aa971d7eb" /> <img width="99" height="41" alt="sonic" src="https://github.com/user-attachments/assets/c863f756-eb40-47b0-8f98-6194c896c23d" /> <img width="99" height="41" alt="undertale2" src="https://github.com/user-attachments/assets/196d8345-e0ec-4921-ae85-d15b1944dc4e" /> <img width="99" height="41" alt="among" src="https://github.com/user-attachments/assets/ef01b2b2-375d-4194-9693-108af0b47fa7" /> <img width="99" height="41" alt="squidsisters" src="https://github.com/user-attachments/assets/9692dbc1-43c7-48cd-9d7c-f11c832f4ba8" /> 
+
 
 
 
@@ -21,7 +21,14 @@
 
 
  <div align="center">
-| In school currently , So my time online is shaved down a bit .|  
+In school currently , So my time online is shaved down a bit .
+
+
+Viren , Kros 
+
+Any prns . Not strict
+
+
 
   
 
