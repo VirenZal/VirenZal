@@ -1,22 +1,18 @@
-<div align="center"> <img width="1176" height="675" alt="179086846799667939 (1)" src="https://github.com/user-attachments/assets/b4815f11-7a1d-49ba-b9ac-484175fd0890" />
+ <div align="center">
+<img width="640" height="580" alt="Weird_Route_screenshot_Chapter_5" src="https://github.com/user-attachments/assets/9528104b-dc87-49c3-9d62-ad8097818079" />
 
 
-<div align="center"><img width="100" height="60" alt="178997971799517552 (2)" src="https://github.com/user-attachments/assets/6597d290-e0c5-4c76-a713-15dc003dffa0" />
+<div align="center"> <img width="800" height="91" alt="4aa4ec81-9f65-47b5-ae70-341c3bc0a1a9" src="https://github.com/user-attachments/assets/4499f2fb-659d-416e-9d37-f09bfdbafa39" />
 
-[[[Straw Page]]](https://virenztrawpage.straw.page) . [Guns.Lol](https://guns.lol/virenzy)
+
+[[[Straw Page]]](https://virenztrawpage.straw.page) . [[[Guns.Lol]]](https://guns.lol/virenzy)
 
  
 
 
 
 
- <div align="center">
-In school currently , So my time online is shaved down a bit .
 
-
-Viren , Kros 
-
-Any prns . Not strict
 
 
 
